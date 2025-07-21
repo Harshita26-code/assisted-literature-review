@@ -8,3 +8,6 @@
         - By Ms. Anushka Kushwaha
 ### [AR6/WG1/Chapter04-Future Global Climate](https://drive.google.com/file/d/1kccHHy_tcuA_CIYZn727KgGz27xGUyE7/view?usp=sharing)
         - By Ms. Deepika Mandakala
+### [AR6/WG2/Chapter06-Cities, Settlements and Key Infrastructures](https://youtu.be/lanCZyNHLYI)
+        - By Harshita Mahawar
+        
